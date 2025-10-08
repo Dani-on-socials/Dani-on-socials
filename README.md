@@ -12,7 +12,7 @@
 
 
 <p align="center">
-<img src="https://s5.ezgif.com/tmp/ezgif-5739735067cd0f.gif" />
+<img src="https://media.tenor.com/Ja1xzARSceUAAAAj/slot-machine-pixel.gif" />
 </p>
 
 
