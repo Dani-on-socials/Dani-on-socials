@@ -12,7 +12,7 @@
 
 
 <p align="center">
-<img src="https://media.tenor.com/Ja1xzARSceUAAAAj/slot-machine-pixel.gif" />
+<img src="https://media.tenor.com/Ja1xzARSceUAAAAj/slot-machine-pixel.gif](https://us-tuna-sounds-images.voicemod.net/b3e08a8c-7757-4d2c-8ca3-9de28093a97e-1742449339899.png" />
 </p>
 
 
